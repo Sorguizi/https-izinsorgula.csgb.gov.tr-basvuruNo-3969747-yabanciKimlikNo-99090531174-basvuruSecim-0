@@ -1,0 +1,1 @@
+# https-izinsorgula.csgb.gov.tr-basvuruNo-3969747-yabanciKimlikNo-99090531174-basvuruSecim-0
